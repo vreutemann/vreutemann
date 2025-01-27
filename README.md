@@ -9,4 +9,4 @@ My name is Verena and I am currently a CONICET Assistant Researcher at the [Nort
 I’m currently working on this site while learning how to update it… 
 
 
-Want to collaborate? Send me an email at vreutemann@gmail.com
+Want to collaborate? Send me an email at verena.reutemann@agr.unne.edu.ar
